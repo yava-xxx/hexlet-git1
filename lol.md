@@ -3,3 +3,4 @@ fuck
 kiss my ass
 shut your face
 DIANA
+I LOVE PYTHON
